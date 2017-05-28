@@ -1,2 +1,6 @@
 # hello-world
 toketgedepunyanyapamela
+inicumaprojecttambahanbuat guajadi
+gapapasih
+kaloinigapenting
+semogabermanfaat
